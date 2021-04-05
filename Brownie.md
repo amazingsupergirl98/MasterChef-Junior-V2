@@ -1,10 +1,10 @@
 Recipe for making tasty chocolate brownies
 
-Ingredients
+Ingredients :
 3 eggs
 1 cup maida
 1 cup Sugar
-1 cup Ghee' href='/glossary/ghee_gid11'>Ghee or Butter
+1 cup Ghee or Butter
 2 tsp Baking powder
 1-1/2 tbsp coco powder
 few drops vanilla Essence
